@@ -1,2 +1,0 @@
-# mariannedubois.github.io
-cv
